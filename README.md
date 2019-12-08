@@ -17,4 +17,6 @@ Jika teman-teman masih kebingungan, atau mau tanya tanya silahkan bisa hubungi s
 <br>
 <a href="https://laluzulfakar.com">Official Website Pe Jung Labs</a>
 <br>
+Intagram: <a href="https://www.instagram.com/laluzulfakar.com_/">@laluzulfakar.com_</a>
+<br>
 Phone/WA: +(62)83129994835
